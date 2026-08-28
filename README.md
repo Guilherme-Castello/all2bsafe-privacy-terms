@@ -1,0 +1,1 @@
+# all2bsafe-privacy-terms
